@@ -30,6 +30,8 @@
 
 ---
 ## Video Demo
-
+1. https://youtu.be/56kHN_1Fhd0
+2. https://youtu.be/Lsvgr09rivI
 
 (Dán link YouTube video demo sản phẩm tại đây)
+
